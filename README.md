@@ -1,6 +1,5 @@
 # learningjournalreal
 ## CODE 102 
-##### This is the biggest one! nope! I'm wrong on that one, it's actually smaller
 
 ### Growth mindset
 - The willingness to perevere through the challenging shit is the bottom line for a growth mindset. 
