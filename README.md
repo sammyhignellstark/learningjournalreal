@@ -3,16 +3,14 @@
 ##### This is the biggest one! nope! I'm wrong on that one, it's actually smaller
 
 ### Growth mindset
-- This is my reminder on what a growth mindset is
-- second reminder
-- Third reminder
+- The willingness to perevere through the challenging shit is the bottom line for a growth mindset. 
+- Expansion requires effort and time. 
+- Breathe, drink water, stay true to yourself but continue to the drive to becoming an expansive, diverse, and experience based individual!
 
-1. This is a number list
-1. Another thing for a list!
-1. So many lists!
 
-## This is the header for another list
+## Reminders for Maintaining a Growth Mindset
 
-1. A second set of lists, has a diff number in code but not in visible form
-1. Did it do it again?
-1. how about a third time?
+1. Remember what got you here. Where did you start? Identify your square one and subsequent steps. You've accomplished SO MUCH!
+1. Move your body and exercise your brain if you've come to a halt. Water your plants. Pet your dog.
+1. Continue to update your goals and manage your time wisely! If something isn't working, move on and try something else.
+1. Keep kicking ass!
