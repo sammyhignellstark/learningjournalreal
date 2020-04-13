@@ -8,6 +8,6 @@
 - Third reminder
 
 1. This is a number list
-2. Another thing for a list!
-3. So many lists!
+1. Another thing for a list!
+1. So many lists!
 
