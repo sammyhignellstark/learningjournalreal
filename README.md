@@ -2,7 +2,7 @@
 ## CODE 102 
 
 ### Growth mindset
-- The willingness to perevere through the challenging shit is the bottom line for a growth mindset. 
+- The willingness to persevere through the challenging shit is the bottom line for a growth mindset. 
 - Expansion requires effort and time. 
 - Breathe, drink water, stay true to yourself but continue to the drive to becoming an expansive, diverse, and experience based individual!
 
@@ -13,3 +13,4 @@
 1. Move your body and exercise your brain if you've come to a halt. Water your plants. Pet your dog.
 1. Continue to update your goals and manage your time wisely! If something isn't working, move on and try something else.
 1. Keep kicking ass!
+
