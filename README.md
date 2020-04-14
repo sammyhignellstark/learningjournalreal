@@ -14,3 +14,7 @@
 1. Continue to update your goals and manage your time wisely! If something isn't working, move on and try something else.
 1. Keep kicking ass!
 
+Fixed Mindset | Growth Mindset
+------------ | -------------
+Doesnt recieve feedback | Accepts constructive criticism
+Can be considered ignorant and cocky | Is likely willing to put in the work to become a more rounded person
