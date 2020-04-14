@@ -18,3 +18,12 @@ Fixed Mindset | Growth Mindset
 ------------ | -------------
 Doesnt recieve feedback | Accepts constructive criticism
 Can be considered ignorant and cocky | Is likely willing to put in the work to become a more rounded person
+
+As butter is to bread:
+
+> Never forget your knife
+
+*My visit to this website was **top notch!** *
+* -S. Mcmurray *
+
+**10/10 would recommend to a friend** 
