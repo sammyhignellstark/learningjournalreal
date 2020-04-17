@@ -6,6 +6,8 @@ Table of Contents
 
 [reflection 04](./journal/reflection04.md)
 
+[reflection 06b](./journal/reflection06b.md)
+
 [reflection 07](./journal/reflection07.md)
 
 [reflection 08](./journal/reflection08.md)
